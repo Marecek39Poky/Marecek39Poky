@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Marecek39Poky
+- 👀 I’m interested in Home Assistant, open source software, Obsidian
+- 🌱 I’m currently learning Markdown
+- 💞️ I’m looking to collaborate on some great projects
+- 📫 How to reach me: E-Mail: marecekpokorny39@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I use Windows 11 i love using 3D Printer to bring my ideas to life.
